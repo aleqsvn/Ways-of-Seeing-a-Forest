@@ -30,8 +30,8 @@ Not through purpose.
 But through presence.
 And perhaps this is where both science and experience begin.
 ## 📎 Files
-- 📄 Девушка в Щепкинском лесу.pdf` — full essay
-- 🖼️ Photos related to the encounter
+- 📄 Девушка в Щепкинском лесу.pdf` — full essay.
+- 🖼️ Photos related to the encounter - A series of 6 JPEG images.
 ## 🌱
 Sometimes the most important discoveries
 begin with simply paying attention.
